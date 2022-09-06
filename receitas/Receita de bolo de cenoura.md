@@ -1,7 +1,5 @@
 ## *Receita de bolo de cenoura* :cake:
-
-![https://images.app.goo.gl/YL2YVmZsvzpUs6z96](C:\Users\Uriel Donisete\Pictures\bolo de cenoura.jpg)
-
+![bolo de cenoura](https://user-images.githubusercontent.com/111095992/188526944-b6e993c0-0dfb-49f9-a2be-f956527c6513.jpg)
 
 
 ## INGREDIENTES
